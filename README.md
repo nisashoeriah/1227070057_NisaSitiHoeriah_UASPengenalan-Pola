@@ -1,0 +1,1 @@
+# 1227070057_NisaSitiHoeriah_UASPengenalan-Pola
